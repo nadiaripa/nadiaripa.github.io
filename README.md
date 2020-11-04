@@ -1,2 +1,0 @@
-# nadiaripa.github.io
- 
